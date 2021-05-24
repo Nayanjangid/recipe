@@ -1,0 +1,3 @@
+Take wheat flour put ajvain sume oil and mae dow with abing water . rest for 15 min 
+Take some onions and potatoes peal onions and boil potaloes cut onions in small peaciesmix potato and onion add some Garam masala ,namakmirchi,haldi,jira.
+And then take the dow fix it than make a round shape and cut it from centre to up side then take some water uply water in one side andv stick it put some masala inside and stick from down and then boil some oil and put that we made inside the oil.
